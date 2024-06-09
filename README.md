@@ -1,0 +1,4 @@
+- Hi, I’m @donaMasarwa ;
+- I’m interested in all kinds of science (physics ,math ,computer science ...) ;
+- I’m currently learning computer science in Netanya college ;
+- That's it ... ;
